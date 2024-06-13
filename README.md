@@ -7,4 +7,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
-@alurastartestudante
+00001114889520sp@aluno.educacao.sp.gov.br
